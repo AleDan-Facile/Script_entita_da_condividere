@@ -1,0 +1,1 @@
+# Script_entita_da_condividere
